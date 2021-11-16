@@ -1,1 +1,1 @@
-Witaj Świecie!
+Witaj Świecie i okolice!
